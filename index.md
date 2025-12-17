@@ -4,6 +4,8 @@
 <h2><strong>My Hero Academia M&ugrave;a 8: Hồi Kết Của Một Thế Hệ Anh H&ugrave;ng</strong></h2>
 <p>My Hero Academia từng được xem l&agrave; người kế thừa tinh thần của những tượng đ&agrave;i như <em>Naruto</em> hay <em>One Piece</em>. V&agrave; với m&ugrave;a 8, series n&agrave;y đ&atilde; chứng minh v&igrave; sao n&oacute; xứng đ&aacute;ng đứng trong h&agrave;ng ngũ huyền thoại.</p>
 <p>Thước đo th&agrave;nh c&ocirc;ng của một anime shonen d&agrave;i tập kh&ocirc;ng nằm ở chi&ecirc;u thức mạnh đến đ&acirc;u, m&agrave; nằm ở <strong>dư &acirc;m cảm x&uacute;c</strong> khi c&acirc;u chuyện kh&eacute;p lại. Nhiều trang đ&aacute;nh gi&aacute; quốc tế nhận định m&ugrave;a 8 ch&iacute;nh l&agrave; &ldquo;b&agrave;i ca thi&ecirc;n nga&rdquo; ho&agrave;n hảo cho h&agrave;nh tr&igrave;nh của Deku v&agrave; thế hệ anh h&ugrave;ng trẻ tuổi.</p>
+<img src="images/hoc-vien-sieu-anh-hung-phan-8.webp"
+     alt="Hoc Vien Sieu Anh Hung Phan 8">
 <h2><strong>Studio Bones V&agrave; Sự B&ugrave;ng Nổ Về Ng&ocirc;n Ngữ H&igrave;nh Ảnh</strong></h2>
 <p>Trải qua 7 m&ugrave;a với phong độ kh&ocirc;ng đồng đều, <strong>Studio Bones</strong> đ&atilde; dồn to&agrave;n lực cho m&ugrave;a cuối. My Hero Academia m&ugrave;a 8 kh&ocirc;ng chỉ m&atilde;n nh&atilde;n về mặt h&agrave;nh động, m&agrave; c&ograve;n g&acirc;y ấn tượng mạnh nhờ c&aacute;ch kể chuyện bằng h&igrave;nh ảnh.</p>
 <p>Trận đối đầu giữa <strong>Deku v&agrave; Shigaraki</strong> kh&ocirc;ng đơn thuần l&agrave; đấm đ&aacute; li&ecirc;n tục. Đ&acirc;y l&agrave; sự va chạm giữa hai l&yacute; tưởng đối lập, được thể hiện qua m&agrave;u sắc tương phản mạnh, g&oacute;c m&aacute;y linh hoạt v&agrave; nhịp chuyển cảnh dồn dập.</p>
